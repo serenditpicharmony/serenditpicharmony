@@ -13,3 +13,4 @@
 hi guyss call me ara/nara whatever you think that suits me the best!!!
     *I LOVEEE VIVVVYYYYYYYY*
 more is on my strawpage and pronouns! please write something on my strawpage/ata!!!!!!!!
+-------------☆☆☆☆☆☆----------------------
